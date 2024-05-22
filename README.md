@@ -13,8 +13,16 @@ We, Group 6, apologize for not creating our source code. We are genuinely gratef
 
 MEMBERS:
 Beron, Jane Sophie S.
+
+
 Remocaldo, Kyle Marl
+
+
 Tano, Justine Marie
+
+
 Salem, Al-Khulaifi
+
+
 Caingay, Kurt Ivan
  
